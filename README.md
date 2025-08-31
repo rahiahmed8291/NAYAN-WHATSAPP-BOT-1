@@ -1,4 +1,4 @@
-# 🤖 Nayan Bot
+# 🤖 RAHI BOT BBY
 
 <div align="center"> 
   <a href="https://git.io/typing-svg"> 
